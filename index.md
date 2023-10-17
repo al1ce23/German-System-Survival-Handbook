@@ -1,4 +1,4 @@
-# Germany System Survival Handbook
+# German System Survival Handbook
 
 Survive german bureaucratic nightmares - WORK IN PROGRESS
 
